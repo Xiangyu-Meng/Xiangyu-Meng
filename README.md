@@ -1,4 +1,4 @@
-# Hi 👋, I'm Xiangyu Meng
+# Xiangyu Meng
 
 ### IT Analyst & Final Year PhD in Statistics
 
